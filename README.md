@@ -7,7 +7,7 @@
 
 - 💻 My latest project: www.moviemojo.online
 
-- 📫 How to reach me **nicole.besel@gmx.de**
+- 📫 How to reach me **https://troopl.com/nicolebesel**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
